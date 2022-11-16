@@ -1,3 +1,4 @@
 qwertyuiop;'
 
 Salom 
+nima qilayabsiz
