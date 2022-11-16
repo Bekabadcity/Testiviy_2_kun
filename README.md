@@ -5,3 +5,4 @@ nima qilayabsiz
 yaxshimisz
 yaxshiku
 HA ketikmi
+Aliooooooooo
